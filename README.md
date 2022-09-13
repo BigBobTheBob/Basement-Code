@@ -1,2 +1,4 @@
 # Z
 Z language
+🎩
+🗿
